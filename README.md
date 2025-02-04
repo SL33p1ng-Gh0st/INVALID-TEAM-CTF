@@ -1,4 +1,4 @@
-- 👋 Hi, We @INVALID-TEAM
+- 👋 Hi, We @SL33p1ng Gh0st👻
 - 👀 We play in CTF
 - 🌱 We started playing late, but we try and gain momentum
 
